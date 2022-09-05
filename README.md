@@ -1,2 +1,2 @@
 # Assigment-Problems
-Work om mine .
+Work of mine .
